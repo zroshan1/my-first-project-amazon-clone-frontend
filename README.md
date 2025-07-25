@@ -1,0 +1,1 @@
+smiple amazon clone website
